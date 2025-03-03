@@ -1,2 +1,0 @@
-# jusi
-harjotushommeli
